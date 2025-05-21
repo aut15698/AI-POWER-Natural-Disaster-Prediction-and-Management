@@ -1,0 +1,1 @@
+# AI-POWER-Natural-Disaster-Prediction-and-Management
